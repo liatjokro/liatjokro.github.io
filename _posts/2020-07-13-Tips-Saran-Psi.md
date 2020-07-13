@@ -5,7 +5,7 @@ date:   2020-07-13 12:00:00 +0100
 categories: blog
 ---
 
-# Bagaimana Cara Memilah Saran-Saran Psikologi untuk Tumbuh Kembang Anak?
+Bagaimana cara memilah saran-Saran psikologi untuk tumbuh kembang anak?
 
 Orangtua mungkin sering melihat dan membaca-baca berbagai saran dan tips dari psikolog untuk membantumu dalam menghadapi tugas mahabesar di hidupmu: menjadi orangtua, membesarkan anak yang semoga akan menjadi anak yang kuat secara fisik, dan juga kuat secara mental.
 
