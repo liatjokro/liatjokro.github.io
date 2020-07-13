@@ -1,11 +1,9 @@
 ---
 layout: post
-title:  "Blog: Baca-baca Tips Parenting...Lalu?"
+title:  "Blog: Menjadi mama, yang juga psikolog…"
 date:   2020-07-13 13:00:00 +0100
 categories: blog
 ---
-
-Menjadi mama, yang juga psikolog…
 
 Satu hal yang dulu pas saya jadi dosen lumayan sering ditanyakan ke saya adalah seberapa banyak psikologi yang saya gunakan untuk mengasuh dan mendidik anak?
 
