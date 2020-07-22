@@ -41,5 +41,4 @@ exclude:
   - vendor/cache/
   - vendor/gems/
   - vendor/ruby/
-  - about.md
   - ReadMe.md
