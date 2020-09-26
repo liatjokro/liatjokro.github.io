@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Cerpen: WILLEMIJN"
+title:  "Cerpen: Willemijn"
 date:   2020-07-14 11:00:00 +0100
 categories: shortstory
 ---
