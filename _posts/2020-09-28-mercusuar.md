@@ -14,19 +14,23 @@ Ia lelah.
 Ia pegal. 
 Ia takut. 
 
-Kulitnya merah pecah-pecah. Air asin laut menggerus memedihkan. 
-Dieratkannya pelukannya pada sebatang kayu hitam basah rapuh.
-Sisa dari perahunya. 
-Perahu yang karam. 
-Karam, karena menabrak karang. 
-Karang yang tadinya ia kira pulau tempat ia dapat bersinggah melepas penat membasuh peluh. 
-Bersinggah? Tidak, tidak jadi. Angin badai bertiup, marah, angkuh, melesakkan perahunya, menghantam karang. Dan karam. 
-Tuhan. Ya. Tuhan. Tuhan yang sudah lama ia abaikan, mungkin Tuhan ini juga yang membantunya, sehingga hari itu bukan jadi harinya yang pamungkas sebagai manusia bernapas. 
-Ia berhasil meraih sebatang kayu dan berpegangan erat-erat pada kayu itu. 
-Terombang-ambing. 
+Kulitnya merah pecah-pecah.
+ 
+Air asin laut menggerus memedihkan. 
 
-Pikirannya terlempar jauh, terbawa arus memori dan nostalgia. 
-Ke tahun-tahun yang telah lampau, yang lama lewat, yang lama lapuk, yang lama ingin ia lupa, namun apa daya, ia tak tega. 
+Dieratkannya pelukannya pada sebatang kayu hitam basah rapuh, sisa dari perahunya. 
+
+Perahu yang karam karena menabrak karang. 
+
+Karang yang tadinya ia kira pulau tempat ia dapat bersinggah melepas penat membasuh peluh. 
+
+Bersinggah? Tidak, tidak jadi. Angin badai bertiup, marah, angkuh, melesakkan perahunya, menghantam karang. Dan karam. 
+
+Tuhan. Ya. Tuhan. Tuhan yang sudah lama ia abaikan, mungkin Tuhan ini juga yang membantunya, sehingga hari itu bukan jadi harinya yang pamungkas sebagai manusia bernapas. 
+
+Ia berhasil meraih sebatang kayu dan berpegangan erat-erat pada kayu itu. Terombang-ambing. 
+
+Pikirannya terlempar jauh, terbawa arus memori dan nostalgia, ke tahun-tahun yang telah lampau, yang lama lewat, yang lama lapuk, yang lama ingin ia lupa, namun apa daya, ia tak tega. 
 
 Ia pergi dari rumah, melangkah gagah, meninggalkan sarang sayang yang ramah dan hangat dalam kebasan debu langkah kakinya. 
 
@@ -42,7 +46,7 @@ Dan laut, sang samudera, dengan ombaknya yang terkadang membelai terkadang mengh
 
 Oh! Betapa jauh arus membawanya! 
 
-Ia bertemu...ah...bidadari laut. Cantik dan montok. Yang membawanya berbelok, tatkala ia harus lurus. 
+Ia bertemu...ah...bidadari laut. Cantik dan montok, mereka yang membawanya berbelok, tatkala ia harus lurus. 
 
 Ia mengais harta karun, ahh...betapa indah menyilaukan emas berlian itu!
 
@@ -78,13 +82,13 @@ Seuntai kenangan.
 
 Kenangan yang lama ia khianati. 
 
-Ingatkah ia akan aku? pikir sang pelaut. 
+*Ingatkah ia akan aku?* pikir sang pelaut. 
 
-Akankah ada senoktah maaf di hatinya yang seputih kapas selembut awan?
+*Akankah ada senoktah maaf di hatinya yang seputih kapas selembut awan?*
 
-Aku mau pulang, pulang padanya. 
+*Aku mau pulang, pulang padanya.* 
 
-Mercusuarku. 
+*Mercusuarku.* 
 
 Sang pelaut menangis tersedu-sedu. 
 
